@@ -1,5 +1,5 @@
 # G'day
-I'm Xeneku.
+I'm Xenuku.
 
 
 My respositories are mostly private for integrity. 
