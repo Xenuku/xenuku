@@ -1,8 +1,8 @@
 # G'day
-I'm Xenuku.
+I'm Liam or Xenuku.
 
 
-My respositories are mostly private for integrity. 
+My respositories are mostly private for academic integrity. 
 
 # Stats
 
